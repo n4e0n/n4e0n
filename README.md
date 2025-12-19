@@ -1,3 +1,3 @@
 ## About my ALTER - "Captain Sweeper".
 
-<img width="238" height="50" alt="image" src="https://github.com/user-attachments/assets/8aa708ff-18e2-408b-a820-e5924a2f0f50" />
+<img width="800" height="100" alt="pngtree-gold-divider-text-frame-wedding-invitation-png-image_6607349 (1)" src="https://github.com/user-attachments/assets/23282463-8b4f-49a4-8746-fea25770d776" />
