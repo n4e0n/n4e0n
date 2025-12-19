@@ -2,7 +2,7 @@
 
 <img width="800" height="100" alt="pngtree-gold-divider-text-frame-wedding-invitation-png-image_6607349 (1)" src="https://github.com/user-attachments/assets/23282463-8b4f-49a4-8746-fea25770d776" />
 
-<img width="218" height="218" alt="image" src="https://github.com/user-attachments/assets/b047ae91-8db8-4d62-887d-5b6ac5985be9" />
+<img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/b047ae91-8db8-4d62-887d-5b6ac5985be9" />
 
 # He uses He/They pronouns.
 # He's an ADULT, 25+ years old.
@@ -21,6 +21,6 @@
 # He is tired most of the time because of his job.
 # He might sound scary because of his deep voice but is a sweet man in reality.
 
-<img width="534" height="239" alt="image" src="https://github.com/user-attachments/assets/e05487a3-5900-4177-93a3-277acb52552c" />
+<img width="1500" height="239" alt="image" src="https://github.com/user-attachments/assets/e05487a3-5900-4177-93a3-277acb52552c" />
 
 <img width="800" height="100" alt="pngtree-gold-divider-text-frame-wedding-invitation-png-image_6607349 (3)" src="https://github.com/user-attachments/assets/bd4025fe-5b90-4464-be21-8763eb7afa91" />
