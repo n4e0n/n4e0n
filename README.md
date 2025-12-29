@@ -23,6 +23,6 @@
 
 <img width="1500" height="200" alt="image" src="https://github.com/user-attachments/assets/e05487a3-5900-4177-93a3-277acb52552c" />
 
-<img width="800" height="100" alt="pngtree-gold-divider-text-frame-wedding-invitation-png-image_6607349 (3)" src="https://github.com/user-attachments/assets/bd4025fe-5b90-4464-be21-8763eb7afa91" />
-
 <img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/b047ae91-8db8-4d62-887d-5b6ac5985be9" />
+
+<img width="800" height="100" alt="pngtree-gold-divider-text-frame-wedding-invitation-png-image_6607349 (3)" src="https://github.com/user-attachments/assets/bd4025fe-5b90-4464-be21-8763eb7afa91" />
